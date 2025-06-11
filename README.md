@@ -34,7 +34,7 @@ With this method, you’ll gain full control over prediction patterns.
 🚀 **Get private scripts, VIP hacks, and instant support.**  
 Join our Telegram now:
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?logo=telegram)](https://t.me/your_channel)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?logo=telegram)](https://t.me/webfluxofficial)
 
 > 📌 Don't miss future updates and advanced hacks.
 
@@ -84,8 +84,8 @@ For help, custom hacks, or issues:
 
 ## 📎 Tags
 
-`#Hack #ColorPrediction #Tiranga #91Club #MantriMall #BharatClub #GameHack #Webflux #TelegramHack #PredictionTrick #100PercentWorking`
+`#Hack #ColorPrediction #Tiranga #91Club #MantriMall #BharatClub #GameHack #Webflux #TelegramHack #howtohackcolourgame #newcolourhack #mantrimallhack #okwinhack #rajaluckhack #modapk  #PredictionTrick #100PercentWorking`
 
 ---
 
-**© Hack Team — 2025**
+**©  Webflux Hack Team — 2025**
